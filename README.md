@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Aubratnayak
+- 👋 Hi, I’m @Subrat Nayak
 - 👀 I’m interested in coding 
 - 🌱 I’m currently learning Automobile Diploma 
 - 💞️ I’m looking to collaborate on instagram 
